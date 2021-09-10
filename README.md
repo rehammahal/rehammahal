@@ -11,7 +11,7 @@
 
 - 📄 Know about my experiences [www.linkedin.com/in/reham-alsuhaimi](www.linkedin.com/in/reham-alsuhaimi)
 
-- ⚡ Fun fact **Games make me so bored 👀**
+- ⚡ Fun fact **Games make me feel boring 👀**
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
